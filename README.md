@@ -1,0 +1,2 @@
+# seotory.com
+lookathome
